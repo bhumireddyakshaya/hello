@@ -1,0 +1,4 @@
+akshaya
+banda
+akki
+niyyaka
